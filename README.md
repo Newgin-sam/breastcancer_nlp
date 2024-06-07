@@ -1,0 +1,7 @@
+![bu_nobot](https://github.com/Newgin-sam/breastcancer_nlp/assets/60768808/cf3cbddd-741f-4a95-b369-11b93021d043)
+![bub_nb](https://github.com/Newgin-sam/breastcancer_nlp/assets/60768808/8c641cf2-d124-40c1-94ac-128bbf459242)
+![bub](https://github.com/Newgin-sam/breastcancer_nlp/assets/60768808/270e01c4-02ef-408c-b9a2-f80e546b3da1)
+![NLP-FLOW](https://github.com/Newgin-sam/breastcancer_nlp/assets/60768808/d524abd0-71c3-4bea-9d85-56f5fbb99c6e)
+![pol_b](https://github.com/Newgin-sam/breastcancer_nlp/assets/60768808/3c1fdb38-b004-4133-aa1c-4d5f56f64780)
+![pol_b](https://github.com/Newgin-sam/breastcancer_nlp/assets/60768808/584839c7-4099-4a1a-b6a5-a7f28c49bae4)
+![sub_b](https://github.com/Newgin-sam/breastcancer_nlp/assets/60768808/3e3d2eed-795a-4a63-9ff7-d3369a22995d)
